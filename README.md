@@ -1,5 +1,5 @@
 Hi, I am Ansh Chablani :smile:
 
-I am a undergraduate student at IIIT, Hyderabad pursuing Computer Science and Engineering.
+I like Seasons 1-4 of Phineas and Ferb.
 
 https://anshium.github.io/
