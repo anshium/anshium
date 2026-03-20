@@ -1,5 +1,3 @@
-Hi, I am Ansh Chablani :smile:
-
-I like Seasons 1-4 of Phineas and Ferb.
+Hi, I am Ansh :smile:
 
 https://anshium.github.io/
